@@ -11,7 +11,7 @@ With a background in Sales & Management, I've always been driven by the desire t
 ---
 
 ## 🔐 My Projects
-
+- Coding
 **Note:** Dive into these repositories to explore my hands-on experiences and insights into the cybersecurity landscape.
 
 
