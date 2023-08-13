@@ -30,7 +30,7 @@ With a background in Sales & Management, I've always been driven by the desire t
 
 I'm actively looking for opportunities to grow and contribute in the cybersecurity space. If you're interested in collaboration or just want to chat about the latest in cybersecurity, please feel free to reach out!
 
-- 🔗 [LinkedIn](www.linkedin.com/in/aaronsal2023)
+- 🔗 www.linkedin.com/in/aaronsal2023
 - 📧 Email: arsalazar75@yahoo.com
 - 🏫 Certifications: https://www.credly.com/users/aaron-salazar.cd52ffb8
 
